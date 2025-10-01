@@ -28,8 +28,8 @@ You accept and agree to the following terms and conditions for Your present and 
 
 Company:
 
-By:
+By: Mayank Kumar
 
-Date:
+Date: 01-10-2025
 
-Email:
+Email: imayankkr@gmail.com
